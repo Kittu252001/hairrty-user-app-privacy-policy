@@ -1,0 +1,1 @@
+# hairrty-user-app-privacy-policy
